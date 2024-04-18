@@ -1,0 +1,1 @@
+A word count description typically refers to the act of quantifying the number of words in a given piece of text. It provides a measure of the length or extent of the text and is commonly used in various contexts such as writing, editing, academic papers, and publishing. 
